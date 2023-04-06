@@ -1,1 +1,1 @@
-market segmentation
+market segmentation for mcDonalds
